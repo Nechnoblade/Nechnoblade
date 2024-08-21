@@ -2,8 +2,8 @@
 - 👀 I’m interested in minecraft
 - 🌱 I’m currently learning html
 - 💞️ I’m looking to collaborate on minecraft
-- 📫 How to reach me email me at: splashvideos05@gmail.com | youtube: https://www.youtube.com/@Nechno-blade
-- 😄 Pronouns: N/A
+- 📫 How to reach me | Email me at: splashvideos05@gmail.com | youtube: https://www.youtube.com/@Nechno-blade
+- 😄 Pronouns: Crazy
 - ⚡ Fun fact: I play 1.8.8 minecraft! =)
 
 <!---
